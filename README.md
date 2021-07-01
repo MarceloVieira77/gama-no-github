@@ -1,0 +1,1 @@
+O curso até agora está bom.
